@@ -7,10 +7,7 @@ meet me behind the mall
 
 testtttttttt
 
-ssssddd
-
-
-uuuyyyyyyu
+ssss
 
 eeeeeeer
 
